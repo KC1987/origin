@@ -1,7 +1,7 @@
-Hello Biches!!
+Hello There!!
 knock knock
 whos there
-GIT BICH!
+GIT!
 YES
-Bch WHO?
-Finish the jokek!!!!!!
+ WHO?
+Finish the joke
